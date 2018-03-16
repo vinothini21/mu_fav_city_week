@@ -1,1 +1,1 @@
-Doing absolutely nothing makes me happy :)
+Doing eating of the cupcakes makes me happy :)
